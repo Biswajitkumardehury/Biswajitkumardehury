@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Biswajitkumardehury
+- 👋 Hi, I’m @Dehuryb
 - 👀 I’m interested in ...Sex & short time money income or illegal all work's
 - 🌱 I’m currently learning ... Engineering
 - 💞️ I’m looking to collaborate on ... Illegal people
